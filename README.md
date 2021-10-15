@@ -10,4 +10,4 @@ https://cdn.discordapp.com/attachments/838167991324901384/838853518466744330/Ang
 
 ^^ Mapper and drivers for EAC
 
-I was the ex owner of infinity since the new ones stole my account lmao, and one is 12 might aswell publish these drivers so they don't use it.
+I was the ex owner of infinity since the new ones stole my account lmao, might aswell publish these drivers so they don't use it.
